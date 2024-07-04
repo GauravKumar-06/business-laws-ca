@@ -1,3 +1,1 @@
-## Sample Data
-
-uiadadadhaghdikua
+## Indian Regulatory Contract
