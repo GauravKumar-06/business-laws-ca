@@ -1,1 +1,1 @@
-## Indian Regulatory Contract
+## Indian Contract Act 1872
